@@ -7,7 +7,7 @@
 <br>官方tg活跃团体一：https://t.me/dycg661
 <br>新地址获取方法一： dychigua@gmail.con
 <br>发任何致邮箱都会自动回复最新地址。获取地址后如打不开等问题，可截图再次回复邮箱，以便我们能第一时间了解情况，以便我们能第一时间了解情况，解决让料友们顺畅使用
-<br>新地址获取方法二：  打开此网页可以快速查看最新地址
+<br>新地址获取方法二： https://github.com/dycg66  打开此网页可以快速查看最新地址
 <br>我们有偿收稿
 <br>邮箱投稿：dychigua@gmail.com
 <br>tg投稿：https://t.me/DYCGgua

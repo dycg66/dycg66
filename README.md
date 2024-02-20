@@ -11,6 +11,6 @@
 <br>新地址获取方法二： https://github.com/dycg66  打开此网页可以快速查看最新地址
 <br>我们有偿收稿
 <br>邮箱投稿：dycg66@proton.me
-<br>tg投稿：https://t.me/DYCGgua
-<br>唯一商务合作：https://t.me/DYCGgua
-<br>广纳人才详情请官网“加入我们”查看请联系唯一tg号：https://t.me/DYCGgua
+<br>tg投稿：https://t.me/dycg_66
+<br>唯一商务合作：https://t.me/dycg_66
+<br>广纳人才详情请官网“加入我们”查看请联系唯一tg号：https://t.me/dycg_66

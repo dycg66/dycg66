@@ -1,5 +1,5 @@
-<br>抖音吃瓜最新地址（4/12更）
-<br>免翻墙入口：https://dycg20.com
+<br>抖音吃瓜最新地址（4/16更）
+<br>免翻墙入口：https://dy01.fun
 <br>永久入口需翻墙：https://dycg.bet/
 <br>永久主页需翻墙：https://dycg66.com/
 <br>官方推特：https://twitter.com/dycg66

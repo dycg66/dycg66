@@ -2,7 +2,7 @@
 <br>免翻墙入口：https://dy02.fun
 <br>永久入口需翻墙：https://dycg.bet/
 <br>永久主页需翻墙：https://dycg66.com/
-<br>官方推特：https://twitter.com/dycg66
+<br>官方推特：https://twitter.com/douyinchigua
 <br>官方电报（telegram）群：https://t.me/dyc03
 <br>官方tg资源预览频道：https://t.me/dycg01
 <br>官方tg交流群：https://t.me/dycg02
